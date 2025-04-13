@@ -49,7 +49,7 @@ Special thanks to **Prodigy InfoTech** for the opportunity and guidance during t
 
 If you'd like to connect or collaborate:  
 **LinkedIn:** [Ashish Anand](https://linkedin.com)  
-**Email:** your.email@example.com
+**Email:** itzananashish@gmail.com
 
 ---
 
